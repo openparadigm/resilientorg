@@ -1,0 +1,4 @@
+Ice Breaker Games:1. Starting with a word like "Friendship". Go around a circle. Each person mentions a word association mentioned by a person on the left i.e. “Friendship” -> “Trust”->”Care” and etc.2. A pantomime game: 	A person starts with showing let's say tying shoe laces, the person on the right asks "What are you doing", the person answers - "I'm typing an email". The person on the right needs to show a pantomime of typing an email. And so on around the circle.3. Ingredients in a soup.Everyone goes around the circle and picks an ingredient or a spice that would represent a person if a team was a soup.4. Compliments game:
+Everyone gives a compliment on your right - could be anything, either personal qualities, how a person looks and etc.
+5. "Tell us what games did you like to play when you were five?"
+6. A pantomime game: Explain what you are planning to do this evening/weekend. Show us how you felt during last weekend, and etc. 
