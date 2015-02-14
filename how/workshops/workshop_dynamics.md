@@ -12,6 +12,8 @@ Let each person be in the group be free, not obligated, not stressed, as well as
 Example:
 "Tell us what games did you like to play when you were five?"
 
+Games are an important part of the methodology. They help with shifting perspectives as well as playing new roles and new states. In the beginning, people don't like games as it seems childish and doesn't make sense. It is important to quickly explain the reason for having games and the fact that even though it feels unpleasant in the beginning - we do need to do it even though it is silly and this negative attitude toward games will soon go away.
+
 **Step 2: Accept a new equal round integrated form where everyone participant is equal and valuable. **
 
 Each person needs to raise everyone else in his or her eyes and minimize personal individual importance and value in order to be able to "hear"/accept opinions/thoughts of others. Could be done through games, questions or activities.
